@@ -63,5 +63,8 @@ https://bigkyiv.com.ua/yihala-na-vruchennya-dyplomu-v-harkovi-zagynula-vid-rosij
 
 https://gwaramedia.com/u-likarni-pomerla-vipuskniczya-meduniversitetu-poranena-vnaslidok-rosijskogo-udaru-po-harkovu/
 
+**Відеопрезентація:** 
+
+https://www.youtube.com/watch?v=PgFC4Qq7ZP8
 
 
